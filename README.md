@@ -1,4 +1,4 @@
-# ParkMyRidePrivacyPolicy
+# Park My Ride Privacy Policy
 Park my ride's privacy policy
 Welcome to Playzen Gamez! At Playzen Gamez®, we are committed to protecting the privacy and personal information of our users. This privacy policy is designed to explain how we collect, use, and disclose personal & non personal information and to provide you with information about your privacy rights. By using our website or mobile applications, you agree to the terms of this privacy policy. If you have any questions or concerns about our privacy practices, please contact us at playzen.gamez@gmail.com.
 
